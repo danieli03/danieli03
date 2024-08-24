@@ -1,13 +1,9 @@
-### boas vindas ao meu perfil 🦝
-meu nome é Danieli Lago
+✭━━━━⊱⋆⊰━━━━დ
 
-- Estou estudando na [Alura](https://www.alura.com.br)
--  Estou me desenvolvendo na linguagem JavaScript
--  Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
+    𝓭𝓪𝓷𝓲𝓲
+    
+♡🐾      🐾♡
 
--  ### você pode entrar em contato comigo 📫
+  .˚ₓ.˚ₓ.˚ₓ
 
--  danieli.lago@escola.pr.gov.br
--  @danielilago
-
--  ![](https://media1.tenor.com/m/_l_5p1vtSE0AAAAC/chiens-funnyanimals.gif)
+-  ![](https://media1.tenor.com/m/9gqIF9ZtnF8AAAAd/nervous-dog-shy-wuba.gif)
